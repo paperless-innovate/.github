@@ -1,3 +1,3 @@
-# Paperless Innovate Tecgbologies
+# Paperless Innovate Technologies
 
 Pioneering the Digital Frontier.
